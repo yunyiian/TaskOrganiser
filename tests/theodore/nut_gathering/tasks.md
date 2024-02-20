@@ -1,0 +1,3 @@
+- 100 Push ups Due: 30/08/23 complete
+- 100 Pull ups Due: 30/08/23 complete
+- 100 Squats Due: 03/09/23 complete
